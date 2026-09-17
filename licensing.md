@@ -1,18 +1,12 @@
-@everyone 
-
 # Nylon Pricing | Free Options Included
-
-~~                                                                                                                                                                                                                                                              ~~
 
  [3 Hours — Free Key](https://work.ink/1Wlo/nyloncc)
 
-~~                                                                                                                                                                                                                                                              ~~
 ### Premium Licenses
  - 7 Days — 75 Robux
  - 30 Days — 200 Robux
  - Lifetime — 400 Robux
 
-~~                                                                                                                                                                                                                                                              ~~
 
 ## Paid License Benefits
 
