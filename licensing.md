@@ -21,7 +21,7 @@
 
 # 🛒 Purchase Nylon
 
-[**Purchase From Roblox →**](https://www.roblox.com/games/86275512202761/Nylon-Store#!/store)
+[**Purchase From Roblox →**](https://www.roblox.com/games/136121186369244/Nylon-Sotre#!/store)
 
 ### 📦 How to Purchase
 - **1.** Create a ticket
